@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ryanjamezlimz
 - 👀 I’m interested in Healthcare
-- 🌱 I’m currently learning how to build a multibillion dollar company
+- 🌱 I’m currently learning how to build a platforms
 - 💞️ I’m looking to collaborate on talented individuals
 - 📫 How to reach me ryanjames@Kyberlife.com
 
